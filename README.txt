@@ -41,4 +41,13 @@
 
                             á██▓▓▓▓▓▓▓▀▀╙
 
- 
+
+====================================
+Latch iz eksperimental 1k/4k kompilation syztem
+-- widt 8-bit UI and 8-bit sound syztem --
+-- TARGETZ DOS, Win32 and YO MAMA --
+====================================
+
+V3rt3Xkl1q iz writing dis for funz.
+Letz zeee mate.
+U kno wat? I got bytez.
